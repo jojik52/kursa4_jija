@@ -1,1 +1,1 @@
-# kursa4_jija
+# jija_kursa4
