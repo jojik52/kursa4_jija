@@ -1,1 +1,0 @@
-# jija_kursa4
